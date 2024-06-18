@@ -2,9 +2,9 @@
 
 Ciao,
 
-siamo il gruppo Nerd che si occuperà dello sviluppo della app mobile.
+siamo il gruppo Nerd che si occuperÃ  dello sviluppo della app mobile.
 
-Se vuoi partecipare anche tu vieni a trovarci in oratorio e chiedi al Don: sarà
+Se vuoi partecipare anche tu vieni a trovarci in oratorio e chiedi al Don: sarÃ 
 felice di darti i nostri contatti!
 
-A presto ;)!
+A presto ðŸ˜…!
